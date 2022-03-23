@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Abxiiroot
 - 👀 I’m interested in coding.
 - 🌱 I’m currently learning python...
-- 💞️ I’m looking to collaborate on learning together
+- 💞️ Learning together is what I'm looking for
 - 📫 How to reach me ...
 instagram:@itz_abxeey
 email:Abdulmoh321@gmail.com
